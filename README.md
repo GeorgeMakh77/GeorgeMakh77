@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GeorgeMakh77
+- 👀 I’m interested in AHSV engineering development of Quantum network in DC and US.
+- 🌱 I’m currently learning how to develop a new SSC skills.
+- 📫 How to reach me https://www.facebook.com/GeorgeMakharadze77
+- 😄 Pronouns: He
+- ⚡ Fun fact: I am an attractive male.....😁😁😁😁
