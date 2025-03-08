@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @GeorgeMakh77
-- 👀 I’m interested in AHSV engineering development of Quantum network in DC and US.
-- 🌱 I’m currently learning how to develop a new SSC skills.
-- 📫 How to reach me https://www.facebook.com/GeorgeMakharadze77
-- 😄 Pronouns: He
+- 👋 Hi, I’m George M (@GeorgeMakh77)
+- 👀 I’m interested in AHSV engineering development of Quantum Net in the District of DC, USA.
+- 🌱 I’m currently learning how to develop a new SSC-3 skills, encourage more ANBL bridge coonections and unite different IW platforms.  .
+- 📫 You could reach me via https://www.facebook.com/GeorgeMakharadze77
 - ⚡ Fun fact: I am an attractive male.....😁😁😁😁
